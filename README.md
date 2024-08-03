@@ -5,6 +5,8 @@
 
 # 💵・Hatalarla Uğraşmak İstemiyorsanız Satın Alabilirsiniz
 https://www.itemsatis.com/discord/v14-formlu-ticket-1741557.html
+
+https://www.itempazar.com/discord-uye-nitro-sunucu/v14-formlu-ticket-109945
 # 
 #
 
